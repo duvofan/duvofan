@@ -1,3 +1,3 @@
 ## sa
 
-<img width="1080" height="1440" alt="asuka_monster" src="https://github.com/user-attachments/assets/9c082439-63e0-4277-a04b-af688b366b88" />
+<img width="2792" height="4000" alt="asuka" src="https://github.com/user-attachments/assets/5cd887a2-4932-4bae-8965-203636d505e7" />
